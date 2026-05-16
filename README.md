@@ -23,7 +23,7 @@ That curiosity has turned into a serious career path. With a Google Cybersecurit
 
 ### 🚀 Projects
 
-**[📁 View my full cybersecurity portfolio →]()**
+**[📁 View my full cybersecurity portfolio →](https://0xhaseebali.github.io/index.html)**
 
 **Highlights:**
 
@@ -40,4 +40,4 @@ That curiosity has turned into a serious career path. With a Google Cybersecurit
 
 ### 📫 Connect
 
-📧 0xhaseebali@gmail.com | [🔗 LinkedIn](https://www.linkedin.com/in/0xhaseeb/) | [📝 Medium](https://medium.com/@Haseeb_Ali)
+📧 0xhaseebali@gmail.com | [🔗 LinkedIn](https://www.linkedin.com/in/0xhaseeb/) | [📝 Medium](https://medium.com/@0xhaseebalii)
