@@ -40,4 +40,4 @@ That curiosity has turned into a serious career path. With a Google Cybersecurit
 
 ### 📫 Connect
 
-📧 0xhaseebali@gmail.com | [🔗 LinkedIn](https://www.linkedin.com/in/0xhaseeb/) | [📝 Medium](https://medium.com/@0xhaseebalii)
+📧 0xhaseebali@gmail.com | [🔗 LinkedIn](https://www.linkedin.com/in/0xhaseeb/) | [📝 Medium](https://medium.com/@0xhaseebali)
